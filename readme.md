@@ -4,3 +4,46 @@ Used in teaching Git.
 dit is change 1
 dit is change 2
 dit is change 3
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
+gfsgfzgbvbgfvbgzsvz
